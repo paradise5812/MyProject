@@ -1,0 +1,3 @@
+
+Yazılım Gereks. Ve Analizi Projesi
+Yakında Sizinleyizzzzzzz.....
